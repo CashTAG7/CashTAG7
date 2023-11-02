@@ -15,7 +15,7 @@
 
 - 💬 Inquire Within: **Feel Free to Discuss Web Development, WordPress Magic, and Coding Odyssey with Me!**
 
-- 📫 Let's Connect: Reach Out via Email **noman@webcraftmen.com**
+- 📫 Let's Connect: Reach Out via Email **nomanebeny@gmail.com**
 
 - ⚡ Fun Fact: **I'm as enthusiastic about coding as I am about exploring new hiking trails!**
 
